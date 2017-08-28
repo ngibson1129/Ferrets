@@ -1,2 +1,0 @@
-# Ferrets
-What interests me
